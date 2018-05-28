@@ -1,1 +1,1 @@
-# m.tps.psi.fyi
+# m-tps.psi.fyi
